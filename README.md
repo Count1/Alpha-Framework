@@ -37,7 +37,7 @@ For more info you can join our discord:  https://discord.gg/D9jpfW2n3M
 
 # Found Bug?
 
-Just join discord and report it in #report-bug channel:  https://discord.gg/D9jpfW2n3M
+Just join discord and report it in #🪲〢report-bug channel:  https://discord.gg/D9jpfW2n3M
 
 
 
