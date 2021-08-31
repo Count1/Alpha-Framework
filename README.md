@@ -4,7 +4,7 @@ Welcome to Alpha Framework
 
 Current Update : 0.1
 
-- <a href="https://gofile.io/d/Z5awZS">Download Full Files</a>
+<a href="https://gofile.io/d/Z5awZS">Download Full Files</a>
 
 
 
