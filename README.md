@@ -1,4 +1,4 @@
-![](https://i.imgur.com/ItaD38n.jpg) 
+![](https://cdn.discordapp.com/attachments/752162200688263185/882285098467217508/Untitled-WQEQWEWQE.png) 
 # Alpha Framework
 
 Welcome to Alpha Framework
